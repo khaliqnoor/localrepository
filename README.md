@@ -1,1 +1,1 @@
-# this is my localrepository file and whatever comes on my way i know about my energy that how much i have and what acn i do and this is the most important thing for sure it is that if someone is trying to do something really big first he has to do something really small adn the best part aboaut entrepreunership is that you think it is hard and it is wa;y harder than that and that is what life is 
+# this is my localrepository file 
